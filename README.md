@@ -1,1 +1,1 @@
-please follow the following steps to install your project in your pc. 
+just follow me.
